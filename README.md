@@ -1,2 +1,0 @@
-# hotmumu50quayba
-trehoalandafavita
